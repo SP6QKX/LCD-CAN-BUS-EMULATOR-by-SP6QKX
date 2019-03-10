@@ -4,6 +4,14 @@ Helpful when Power-UP and test devices controlled by CAN-BUS
  
 Project its under construction ! 
 
+If you would like donate to support my projects and development 
+
+https://www.paypal.com/pools/c/8cTo5eOF8T
+
+
+Thanks and Greetings 
+
+
 https://youtu.be/tvbWc_svBSQ
 
 
